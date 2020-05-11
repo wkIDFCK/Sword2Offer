@@ -1,0 +1,2 @@
+# BeatLeetCode
+work hard!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
